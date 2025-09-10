@@ -1,1 +1,3 @@
 # UCanVisitHerlogMyBlogFromACityThatCouldAnswerTheseQuestionsICanSeeOnPlausibleTraffic
+
+https://commons.wikimedia.org/wiki/Category:Places_named_after_months
